@@ -68,6 +68,6 @@ The idea of a dream home has changed significantly over the last decade. Familie
 
 For buyers exploring flats in Noida, organised residential communities now offer the right mix of comfort, safety, connectivity, and long-term value. Projects like ACE Han’ei, ACE Terra, and ACE Verde show how modern apartment living is evolving into a complete lifestyle experience rather than a housing choice.
 
-# ACE HAN'EI – RERA REG NO. UPRERAPRJ677887/10/2024 | www.up-rera.in/projects
-# ACE TERRA - RERA REG NO. UPRERAPRJ683816/04/2024 | www.up-rera.in/projects
-# ACE VERDE – RERA REG NO. UPRERAPRJ913692/03/2025 | www.up-rera.in/projects
+##### ACE HAN'EI – RERA REG NO. UPRERAPRJ677887/10/2024 | www.up-rera.in/projects
+##### ACE TERRA - RERA REG NO. UPRERAPRJ683816/04/2024 | www.up-rera.in/projects
+##### ACE VERDE – RERA REG NO. UPRERAPRJ913692/03/2025 | www.up-rera.in/projects
